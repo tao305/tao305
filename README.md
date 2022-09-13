@@ -1,4 +1,6 @@
 ### Hi there 👋 
+I am Yemmy full stack developer feel free to contact me for project i love neew experience 
+
 <!--
 **tao305/tao305** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
